@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...xiangniyiqixiangshoumeihao
 - 📫 How to reach me ...
-- 😄 Pronouns: ...xiangnimeiyitiannishisuoyou
+- 😄 Pronouns: ...xiangnimeiyitiannishisuoyouyoushanyouyuyhouni
 - ⚡ Fun fact: ...cuijingfei is my wife,my life, my love
 want your love ffloveff
 <!---you and family,you are my family
